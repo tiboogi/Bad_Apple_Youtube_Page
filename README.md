@@ -1,3 +1,4 @@
+這個人真的好有料= =我哭死
 # Bad Apple on YouTube
 Playing Bad Apple on the YouTube Homepage
 
